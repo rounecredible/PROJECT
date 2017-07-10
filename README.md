@@ -1,2 +1,7 @@
 # PROJECT
-diz iz izparta
+Nyeam
+
+Cereno
+Medina
+-Mendoza
+Tanenggee
